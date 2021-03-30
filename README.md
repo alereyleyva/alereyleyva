@@ -6,5 +6,5 @@
 - 💻 I love Web Development, Maths and New Technologies
 - 📫 How to reach me
   - Email ➡️ alereyleyva10@gmail.com
-  - Twitter ➡️ @Alereyleyva
+  - Twitter ➡️ @alereyleyva
   - Instagram ➡️ @alereyleyva
