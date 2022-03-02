@@ -5,6 +5,6 @@
 - ⏭️ In the future, I would like to learn Machine Learning or Big Data
 - 💻 I love Web Development, Maths and New Technologies
 - 📫 How to reach me
-  - Email ➡️ alereyleyva10@gmail.com
+  - Email ➡️ alereyleyva@gmail.com
   - Twitter ➡️ @alereyleyva
   - Instagram ➡️ @alereyleyva
