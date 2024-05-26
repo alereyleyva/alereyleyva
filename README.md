@@ -8,3 +8,4 @@
   - Email ➡️ alereyleyva@gmail.com
   - Twitter ➡️ @alereyleyva
   - Instagram ➡️ @alereyleyva
+  - Personal website ➡️ [alereyleyva.dev](https://www.alereyleyva.dev)
